@@ -105,5 +105,5 @@ Special thanks to Bruce Haryali and the AtliQ Motors team for their innovative v
 
 ## 🌍 Connect
 
-💼 LinkedIn: [Your Name]([https://www.linkedin.com/in/your-linkedin](https://www.linkedin.com/in/srabana-baidya-163830281/))  
+💼 LinkedIn:Srabana Baidya([https://www.linkedin.com/in/your-linkedin](https://www.linkedin.com/in/srabana-baidya-163830281/))  
 📧 Email: srabanabaidya@gmail.com
